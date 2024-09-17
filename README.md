@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me akinlolupeace@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I watch anime
+- ⚡ Fun fact: I watch anime and I crochet
 
 <!---
 Peaceakinlolu/Peaceakinlolu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
