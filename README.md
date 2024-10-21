@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Peaceakinlolu
 - 👀 I’m interested in Trends in Data over time
 - 🌱 I’m currently learning Data Science
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me akinlolupeace@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I watch anime and I crochet
